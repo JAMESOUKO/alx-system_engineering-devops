@@ -1,1 +1,1 @@
-Hello you
+ Divide and rule 
